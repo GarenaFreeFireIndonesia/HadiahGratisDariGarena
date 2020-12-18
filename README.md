@@ -1,2 +1,0 @@
-# HadiahGratisDariGarena
-FREE
